@@ -7,4 +7,4 @@ Teansaidyk
 |-----: |:---:|  
 
 [ссылка](https://ru.pinterest.com/)
-[![картинка](https://avatars.mds.yandex.net/i?id=30236d7ecc74e0c1b69cc731523971f9_l-4077540-images-thumbs&n=13)
+[![картинка](https://avatars.mds.yandex.net/i?id=990ed611875acbef8af171c50844505e534eb7a7-16420541-images-thumbs&n=13)
