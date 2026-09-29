@@ -7,4 +7,4 @@ Teansaidyk
 |Artemiy|15|
 |-----: |:---:|  
 
-[текст ссылки](https://ru.pinterest.com/)
+[ссылка](https://ru.pinterest.com/)
